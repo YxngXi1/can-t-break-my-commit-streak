@@ -4,3 +4,6 @@ just something i'm gonna commit to sometimes when I don't have time to code but 
 
 08/09/2024
 - I'm going on a plane today and I don't have time to create a commit. Apologies.
+
+08/10/2024
+- Just landed and im tired and i need sleep
