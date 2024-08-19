@@ -7,3 +7,6 @@ just something i'm gonna commit to sometimes when I don't have time to code but 
 
 08/10/2024
 - Just landed and im tired and i need sleep
+
+08/20/2024
+- Away from computer all day today
