@@ -10,3 +10,6 @@ just something i'm gonna commit to sometimes when I don't have time to code but 
 
 08/20/2024
 - Away from computer all day today
+
+08/21/2024
+- Was out all day, no time!!!
