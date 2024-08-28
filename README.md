@@ -16,3 +16,6 @@ just something i'm gonna commit to sometimes when I don't have time to code but 
 
 08/27/2024
 - worried i might be away all day so this is to be safe
+
+08/28/2024
+- mountaineering togjt now at fuji 
