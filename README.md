@@ -18,4 +18,8 @@ just something i'm gonna commit to sometimes when I don't have time to code but 
 - worried i might be away all day so this is to be safe
 
 08/28/2024
-- mountaineering togjt now at fuji 
+- mountaineering togjt now at fuji
+
+08/28/2024
+
+- mountaineering togjt now at fuji
